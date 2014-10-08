@@ -1,0 +1,4 @@
+DEUSNOCOMANDO
+=============
+
+AMAR AO PRÓXIMO É IGUAL AMAR A DEUS!
